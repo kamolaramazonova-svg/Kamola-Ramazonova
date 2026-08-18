@@ -1,2 +1,0 @@
-# Kamola-Ramazonova
-intellectolympiad.uz
